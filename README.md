@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @CamposPaulo
+- 👀 Procuro  me inserir na área o mais rápido possiv
+- 🌱 No momento estou cursando 2º Semestre de Análise e Desenvolvimento de Sistemas, na Fatec de Santos/SP
+- 💞️ Quero ajudar pessoas acima dos 40 anos, que assim como eu decidiu iniciar a transição de carreira
+- 📫 paulorobertoc1981@hotmail.com
